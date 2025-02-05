@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Duc vu aka Feddie
-- I'm a software enginner with 4 year experience in software. I have more 1 year working as a Front-end developer. Right now I'm a Mobile engineer for over 2 years.
+- I'm a software enginner with 4 year experience in software. I have more 1 year working as a Front-end developer. Right now I'm a Mobile engineer for over 3 years.
 - To get more detail about me please reach me at https://www.linkedin.com/in/feddievu/
 - Thank you for your reading!
 
